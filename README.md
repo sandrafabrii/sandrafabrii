@@ -1,5 +1,5 @@
 
 
-- 👩‍💻 - Analista de Qualidade
-  
--->
+-  👩‍💻 - Analista de Qualidade
+ - 📋 - Analista de Projetos
+ 
